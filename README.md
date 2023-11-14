@@ -8,8 +8,6 @@
 
 -atleta de kickboxing
 
---apaixonada por carro e moto
-
 -aquariana 
 
 -hip-hop 
