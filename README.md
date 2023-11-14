@@ -8,6 +8,8 @@
 
 -atleta de kickboxing
 
+-musculção
+
 -aquariana 
 
 -hip-hop 
