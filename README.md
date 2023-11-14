@@ -12,7 +12,7 @@
 
 -aquariana 
 
--hip-hop 
+-hip-hop/rap
 
 -@thamyres4674
 
